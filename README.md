@@ -35,456 +35,486 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A familiar exposition or commentarie on Ecclesiastes VVherein the worlds vanity, and the true felici
+
+1. TO THE RIGHT Reuerend Father in God, and my very Honourable good Lord, GEORGE, by Gods prouidence L. Biſhop of Lincolne, and high ALMONER to the Kings Moſt Excellent MAIESTIE, continuall increaſe of all true HAPPINESSE.
+
+1. TO THE RIGHT VVorſhipfull and worthy-minded Gentlemen, Sir Iames Fowlerton, Sir Dauid Murray, Sir Peter Oſburne, Knights: Mr. Iohn Murray, Mr. William Car•e, Mr. Henry Gibbe, of his Maieſties Bed-Chamber, Mr. Emmanuel Giffard, one of the Gentlemen of his Maieſties Priuy-chamber, Eſq. Mr. James Douglaſſe, Mr. Richard Jones, Mr. Endymion Porter, Mr. John Heron, and Mr. John Parker, Eſquires: Grace and Peace be multiplyed.
+
 #####Body#####
 
-1. Verſe 1.The words of the PREACHER, the Sonne of DAVID, King in Ieruſalem.
+1. CHAPTER I.
 
-1. Verſe 2.Vanitie of Vanities, ſaith the Preacher, Vanity of Vanities, all is vanitie.
+    _ Verſe 1.The words of the PREACHER, the Sonne of DAVID, King in Ieruſalem.
 
-1. Verſe 3.What profit hath a man of all his labour which hee taketh vnder the Sunne?
+    _ Verſe 2.Vanitie of Vanities, ſaith the Preacher, Vanity of Vanities, all is vanitie.
 
-1. Verſe 4.One generation paſſeth away, and another generation commeth: but the earth abideth for euer.
+    _ Verſe 3.What profit hath a man of all his labour which hee taketh vnder the Sunne?
 
-1. Verſe 5.The Sunne alſo ariſeth, and the Sunne goeth downe, and haſteth to the place where he aroſe.
+    _ Verſe 4.One generation paſſeth away, and another generation commeth: but the earth abideth for euer.
 
-1. Verſe 6.The winde goeth toward the South, and turneth about vnto the North; it whirleth about continually, and the winde returneth againe according to his circuits.
+    _ Verſe 5.The Sunne alſo ariſeth, and the Sunne goeth downe, and haſteth to the place where he aroſe.
 
-1. Verſe 7.All the Riuers runne into the Sea, yet the Sea is not full: vnto the place from whence the Riuers come, thither they returne againe.
+    _ Verſe 6.The winde goeth toward the South, and turneth about vnto the North; it whirleth about continually, and the winde returneth againe according to his circuits.
 
-1. Verſe 8.All things are full of labour, man cannot vtter it: the eye is not ſatisfied with ſeeing, nor the eare with hearing.
+    _ Verſe 7.All the Riuers runne into the Sea, yet the Sea is not full: vnto the place from whence the Riuers come, thither they returne againe.
 
-1. Verſe 9.The thing that hath beene, it is that which ſhall be, and that which is done, is that which ſhall be done; and there is no new thing vnder the Sunne.
+    _ Verſe 8.All things are full of labour, man cannot vtter it: the eye is not ſatisfied with ſeeing, nor the eare with hearing.
 
-1. Verſe 10.Is there any thing, whereof it may be ſaid, See, this is new? It hath beene already of old time, which was before vs.
+    _ Verſe 9.The thing that hath beene, it is that which ſhall be, and that which is done, is that which ſhall be done; and there is no new thing vnder the Sunne.
 
-1. Verſe 11.There is no remembrance of former things, neither ſhall there be any remembrance of things that are to come, with thoſe that ſhall come after.
+    _ Verſe 10.Is there any thing, whereof it may be ſaid, See, this is new? It hath beene already of old time, which was before vs.
 
-1. Verſe 12.I the Preacher, was King ouer Iſrael, in Ieruſalem.
+    _ Verſe 11.There is no remembrance of former things, neither ſhall there be any remembrance of things that are to come, with thoſe that ſhall come after.
 
-1. Verſe 13.And I gaue my heart to ſeeke and ſearch out by wiſedome, concerning all things that are done vnder heauen: this ſore trauaile hath God giuen to the ſonnes of men, to be exerciſed therewith.
+    _ Verſe 12.I the Preacher, was King ouer Iſrael, in Ieruſalem.
 
-1. Verſe 14.I haue ſeene all the workes that are done vnder the Sunne, and behold, all is vanity, and vexation of ſpirit.
+    _ Verſe 13.And I gaue my heart to ſeeke and ſearch out by wiſedome, concerning all things that are done vnder heauen: this ſore trauaile hath God giuen to the ſonnes of men, to be exerciſed therewith.
 
-1. Verſe 15.That which is crooked, cannot be made ſtraight: and that which is wanting, cannot be numbred.
+    _ Verſe 14.I haue ſeene all the workes that are done vnder the Sunne, and behold, all is vanity, and vexation of ſpirit.
 
-1. Verſe 16.I communed with mine owne heart, ſaying, Loe, I am come to a great eſtate, and haue gotten more wiſedome then all they that haue beene before me in Ieruſalem: yea, my heart had great experience of wiſedome and knowledge.
+    _ Verſe 15.That which is crooked, cannot be made ſtraight: and that which is wanting, cannot be numbred.
 
-1. Verſe 17.And I gaue my heart to know wiſedome, and to know madneſſe, and folly: I perceiued that this alſo is vexation of Spirit.
+    _ Verſe 16.I communed with mine owne heart, ſaying, Loe, I am come to a great eſtate, and haue gotten more wiſedome then all they that haue beene before me in Ieruſalem: yea, my heart had great experience of wiſedome and knowledge.
 
-1. Verſe 18.For in much wiſedome is much griefe: and he that increaſeth knowledge, increaſeth ſorrow.
+    _ Verſe 17.And I gaue my heart to know wiſedome, and to know madneſſe, and folly: I perceiued that this alſo is vexation of Spirit.
 
-1. Verſe 1.I ſaid in my heart, goe to now, I will prooue thee with mirth, therefore inioy pleaſure: and behold, this alſo is vanitie.
+    _ Verſe 18.For in much wiſedome is much griefe: and he that increaſeth knowledge, increaſeth ſorrow.
 
-1. Verſe 2.I ſaid of laughter, it is mad: and of mirth what doth it?
+1. CHAPTER II.
 
-1. Verſe 3.I ſought in mine heart to giue my ſelfe vnto wine (yet acquainting mine heart with wiſedome) and to lay hold on folly, till I might ſee what was that good for the ſonnes of men, which they ſhould doe vnder heauen all the dayes of their life.
+    _ Verſe 1.I ſaid in my heart, goe to now, I will prooue thee with mirth, therefore inioy pleaſure: and behold, this alſo is vanitie.
 
-1. Verſe 4.I made me great workes, I builded houſes, I planted me Ʋineyards.
+    _ Verſe 2.I ſaid of laughter, it is mad: and of mirth what doth it?
 
-1. Verſe 5.I made me Gardens, and Hortyards, and I planted trees in them of all kinde of fruits.
+    _ Verſe 3.I ſought in mine heart to giue my ſelfe vnto wine (yet acquainting mine heart with wiſedome) and to lay hold on folly, till I might ſee what was that good for the ſonnes of men, which they ſhould doe vnder heauen all the dayes of their life.
 
-1. Verſe 6.I made me pooles of water, to water therewith the wood that bringeth forth trees.
+    _ Verſe 4.I made me great workes, I builded houſes, I planted me Ʋineyards.
 
-1. Verſe 7.I got me ſeruants and maidens, and had ſeruants borne in my houſe; alſo I had great poſſeſſions of great and ſmall Cattle, aboue all that were in Ieruſalem before me.
+    _ Verſe 5.I made me Gardens, and Hortyards, and I planted trees in them of all kinde of fruits.
 
-1. Verſe 8.I gathered me alſo ſiluer and gold, and the peculiar treaſure of Kings, and of the Prouinces: I got mee men-ſingers, and women-ſingers, and the delights of the ſonnes of men, as muſicall inſtruments, and that of all ſorts.
+    _ Verſe 6.I made me pooles of water, to water therewith the wood that bringeth forth trees.
 
-1. Verſe 9.So I was great, and increaſed more then all that were before mee in Ieruſalem: alſo my wiſedome remained with mee.
+    _ Verſe 7.I got me ſeruants and maidens, and had ſeruants borne in my houſe; alſo I had great poſſeſſions of great and ſmall Cattle, aboue all that were in Ieruſalem before me.
 
-1. Verſe 10.And whatſoeuer mine eyes deſired. I kept not from them, I with-held not mine heart from any ioy; for my heart reioyced in all my labour, and this was my portion of all my labour.
+    _ Verſe 8.I gathered me alſo ſiluer and gold, and the peculiar treaſure of Kings, and of the Prouinces: I got mee men-ſingers, and women-ſingers, and the delights of the ſonnes of men, as muſicall inſtruments, and that of all ſorts.
 
-1. Verſe 11.Then I looked on all the workes that my hands had wrought, and on the labour that I had laboured to doe: and behold all was vanity, and vexation of ſpirit; and there was no profit vnder the Sunne.
+    _ Verſe 9.So I was great, and increaſed more then all that were before mee in Ieruſalem: alſo my wiſedome remained with mee.
 
-1. Verſe 12.And I turned my ſelfe to behold wiſedome, and madneſſe, and folly: for what can the man doe, that commeth after the King? euen that which hath beene already done.
+    _ Verſe 10.And whatſoeuer mine eyes deſired. I kept not from them, I with-held not mine heart from any ioy; for my heart reioyced in all my labour, and this was my portion of all my labour.
 
-1. Verſe 13.Then I ſaw that wiſedome excelleth folly, as farre as light excelleth darkeneſſe.
+    _ Verſe 11.Then I looked on all the workes that my hands had wrought, and on the labour that I had laboured to doe: and behold all was vanity, and vexation of ſpirit; and there was no profit vnder the Sunne.
 
-1. Verſe 14.The wiſe mans eyes are in his head, but the foole walketh in darkeneſſe: and I my ſelfe perceiued alſo that one euent happeneth to them all.
+    _ Verſe 12.And I turned my ſelfe to behold wiſedome, and madneſſe, and folly: for what can the man doe, that commeth after the King? euen that which hath beene already done.
 
-1. Verſe 15.Then ſaide I in my heart, as it happeneth to the foole, ſo it happeneth euen to me; and why was I then more wiſe? Then I ſaide in my heart, that this alſo is vanity.
+    _ Verſe 13.Then I ſaw that wiſedome excelleth folly, as farre as light excelleth darkeneſſe.
 
-1. Verſe 16.For there is no remembrance of the wiſe more then of the foole for euer, ſeeing that which is now, in the dayes to come ſhall be forgotten; and how dyeth the wiſe man? as the foole.
+    _ Verſe 14.The wiſe mans eyes are in his head, but the foole walketh in darkeneſſe: and I my ſelfe perceiued alſo that one euent happeneth to them all.
 
-1. Verſe 17.Therefore I hated life, becauſe the worke that is wrought vnder the Sunne, is grieuous vnto me: for all is vanity and vexation of ſpirit.
+    _ Verſe 15.Then ſaide I in my heart, as it happeneth to the foole, ſo it happeneth euen to me; and why was I then more wiſe? Then I ſaide in my heart, that this alſo is vanity.
 
-1. Verſe 18.Yea, I hated all my labour which I had taken vnder the Sunne: becauſe I ſhould leaue it vnto the men that ſhall be after mee.
+    _ Verſe 16.For there is no remembrance of the wiſe more then of the foole for euer, ſeeing that which is now, in the dayes to come ſhall be forgotten; and how dyeth the wiſe man? as the foole.
 
-1. Verſe 19.And who knoweth whether hee ſhall be a wiſe man or a foole? yet ſhall hee haue rule ouer all my labour, wherein I haue laboured, and wherein I haue ſhewed my ſelfe wiſe vnder the Sunne.
+    _ Verſe 17.Therefore I hated life, becauſe the worke that is wrought vnder the Sunne, is grieuous vnto me: for all is vanity and vexation of ſpirit.
 
-1. Verſe 20.Therefore I went about to cauſe my heart to deſpaire of all the labour which I tooke vnder the Sunne.
+    _ Verſe 18.Yea, I hated all my labour which I had taken vnder the Sunne: becauſe I ſhould leaue it vnto the men that ſhall be after mee.
 
-1. Verſe 21.For there is a man whoſe labour is in wiſedome, and in knowledge, and in equity: yet to a man that hath not laboured therein ſhall he leaue it for his portion. This alſo is vanity, and a great euill.
+    _ Verſe 19.And who knoweth whether hee ſhall be a wiſe man or a foole? yet ſhall hee haue rule ouer all my labour, wherein I haue laboured, and wherein I haue ſhewed my ſelfe wiſe vnder the Sunne.
 
-1. Verſe 22.For what hath man of all his labour, and of the vexation of his heart wherein he hath laboured vnder the Sunne?
+    _ Verſe 20.Therefore I went about to cauſe my heart to deſpaire of all the labour which I tooke vnder the Sunne.
 
-1. Verſe 23.For all his dayes are ſorrow, and his trauaile griefe; yea, his heart taketh not reſt in the night. This is alſo vanitie.
+    _ Verſe 21.For there is a man whoſe labour is in wiſedome, and in knowledge, and in equity: yet to a man that hath not laboured therein ſhall he leaue it for his portion. This alſo is vanity, and a great euill.
 
-1. Verſe 24.There is nothing better for a man, then that hee ſhould eate and drinke, and that he ſhould make his ſoule enioy the good of his labour. This alſo I ſaw, and that it was from the hand of God.
+    _ Verſe 22.For what hath man of all his labour, and of the vexation of his heart wherein he hath laboured vnder the Sunne?
 
-1. Verſe 25.For who can eate? or who elſe can haſten hereunto more then I?
+    _ Verſe 23.For all his dayes are ſorrow, and his trauaile griefe; yea, his heart taketh not reſt in the night. This is alſo vanitie.
 
-1. Verſe 26.For God giueth to a man that is good in his fight, wiſedome, and knowledge, and ioy: but to the ſinner he giueth trauell to gather, and to heape vp, that he may giue to him that is good before God: This alſo is vanity, and vexation of ſpirit.
+    _ Verſe 24.There is nothing better for a man, then that hee ſhould eate and drinke, and that he ſhould make his ſoule enioy the good of his labour. This alſo I ſaw, and that it was from the hand of God.
 
-1. Verſe 1.To euery thing there is a ſeaſon, and a time to euery purpoſe vnder heauen.
+    _ Verſe 25.For who can eate? or who elſe can haſten hereunto more then I?
 
-1. Verſe 2.A time to be borne, and a time to dye: a time to plant, and a time to plucke vp that which is planted.
+    _ Verſe 26.For God giueth to a man that is good in his fight, wiſedome, and knowledge, and ioy: but to the ſinner he giueth trauell to gather, and to heape vp, that he may giue to him that is good before God: This alſo is vanity, and vexation of ſpirit.
 
-1. Verſe 3.A time to kill, and a time to heale: a time to breake downe, and a time to build vp.
+1. CHAPTER III.
 
-1. Verſe 4.A time to weepe, and a time to laugh: a time to mourne; and a time to dance.
+    _ Verſe 1.To euery thing there is a ſeaſon, and a time to euery purpoſe vnder heauen.
 
-1. Verſe 5.A time to caſt away ſtones, and a time to gather ſtones together: a time to imbrace, and a time to refraine from imbracing.
+    _ Verſe 2.A time to be borne, and a time to dye: a time to plant, and a time to plucke vp that which is planted.
 
-1. Verſe 6.A time to get, and a time to loſe; a time to keepe, and a time to caſt away.
+    _ Verſe 3.A time to kill, and a time to heale: a time to breake downe, and a time to build vp.
 
-1. Verſe 7.A time to rent, and a time to ſow; a time to keepe ſilence, and a time to ſpeake.
+    _ Verſe 4.A time to weepe, and a time to laugh: a time to mourne; and a time to dance.
 
-1. Verſe 8,A time to loue, and a time to hate: a time of warre, and a time of peace.
+    _ Verſe 5.A time to caſt away ſtones, and a time to gather ſtones together: a time to imbrace, and a time to refraine from imbracing.
 
-1. Verſe 9.What hath he that worketh, in that wherein hee laboureth?
+    _ Verſe 6.A time to get, and a time to loſe; a time to keepe, and a time to caſt away.
 
-1. Verſe 10.I haue ſeene the trauell which God hath ginen to the ſonnes of men, to be exerciſed in it.
+    _ Verſe 7.A time to rent, and a time to ſow; a time to keepe ſilence, and a time to ſpeake.
 
-1. Verſe 11.He hath made euery thing beautifull in his time: alſo he hath ſet the world in their heart, ſo that none can find• out the worke that God maketh from the beginning to the end.
+    _ Verſe 8,A time to loue, and a time to hate: a time of warre, and a time of peace.
 
-1. Verſe 12.
+    _ Verſe 9.What hath he that worketh, in that wherein hee laboureth?
 
-1. Verſe 13.And alſo that euery man ſhould eate, and drinke, and inioy the good of all his labour, it is the gift of God.
+    _ Verſe 10.I haue ſeene the trauell which God hath ginen to the ſonnes of men, to be exerciſed in it.
 
-1. Verſe 14.I know that whatſoeuer God doth, it ſhall be for euer: nothing can be put to it, nor any thing taken from it: and God doth it that men ſhould feare before him.
+    _ Verſe 11.He hath made euery thing beautifull in his time: alſo he hath ſet the world in their heart, ſo that none can find• out the worke that God maketh from the beginning to the end.
 
-1. Verſe 15.That which hath beene, is now, and that which is to be, • hath already beene, and God requireth that which is paſt.
+    _ Verſe 12.
 
-1. Verſe 16.And moreouer, I ſaw vnder the Sunne the place of iudgement, that wickedneſſe was there; and the place of righteouſneſſe, that iniquity was there.
+    _ Verſe 13.And alſo that euery man ſhould eate, and drinke, and inioy the good of all his labour, it is the gift of God.
 
-1. Verſe 17.I ſaid in mine heart, God ſhall iudge the righteous, and the wicked: for there is a time there, for euery purpoſe, and for euery worke.
+    _ Verſe 14.I know that whatſoeuer God doth, it ſhall be for euer: nothing can be put to it, nor any thing taken from it: and God doth it that men ſhould feare before him.
 
-1. Verſe 18.I ſaid in my heart concerning the eſtate of the ſonnes of men, that God might manifeſt them, and that they might ſee that they themſelues are beaſts.
+    _ Verſe 15.That which hath beene, is now, and that which is to be, • hath already beene, and God requireth that which is paſt.
 
-1. Verſe 19.For that which befalleth the ſonnes of men, befalleth beaſts; euen one thing befalleth them all: as the one dyeth, ſo dyeth the other; yea, they haue all one breath, ſo that a man hath no preheminence aboue a beaſt: for all is vanity.
+    _ Verſe 16.And moreouer, I ſaw vnder the Sunne the place of iudgement, that wickedneſſe was there; and the place of righteouſneſſe, that iniquity was there.
 
-1. Verſe 20.All goe vnto one place, all are of the duſt, and all turne to duſt againe.
+    _ Verſe 17.I ſaid in mine heart, God ſhall iudge the righteous, and the wicked: for there is a time there, for euery purpoſe, and for euery worke.
 
-1. Verſe 21.Who knoweth the ſpirit of man that goeth vpward, and the ſpirit of a beaſt that goeth downe-ward to the earth?
+    _ Verſe 18.I ſaid in my heart concerning the eſtate of the ſonnes of men, that God might manifeſt them, and that they might ſee that they themſelues are beaſts.
 
-1. Verſe 22.Wherefore I perceiue that there is nothing better, then that a man ſhould reioyce in his owne workes: for that is his portion; for who ſhall bring him to ſee what ſhall be after him?
+    _ Verſe 19.For that which befalleth the ſonnes of men, befalleth beaſts; euen one thing befalleth them all: as the one dyeth, ſo dyeth the other; yea, they haue all one breath, ſo that a man hath no preheminence aboue a beaſt: for all is vanity.
 
-1. Verſe 1.So I returned, and conſidered all the oppreſſions that are done vnder the Sunne; and behold the teares of ſuch as were▪ oppreſſed, and they had no Comforter: and on the ſide of their oppreſſours there was power, but they had no Comforter. II. Example of vanities in outward things.
+    _ Verſe 20.All goe vnto one place, all are of the duſt, and all turne to duſt againe.
 
-1. Verſe 2.
+    _ Verſe 21.Who knoweth the ſpirit of man that goeth vpward, and the ſpirit of a beaſt that goeth downe-ward to the earth?
 
-1. Verſe 3.Yea, better is be then both they, which hath not yet been, who hath not ſeene the euill worke that is done vnder the Sun.
+    _ Verſe 22.Wherefore I perceiue that there is nothing better, then that a man ſhould reioyce in his owne workes: for that is his portion; for who ſhall bring him to ſee what ſhall be after him?
 
-1. Verſe 4.Againe, I conſidered all trauell, and euery right worke, that for this a man is enuyed of his neighbour: this is alſo vanity and vexation of ſpirit.
+1. CHAPTER IIII.
 
-1. Verſe 5.
+    _ Verſe 1.So I returned, and conſidered all the oppreſſions that are done vnder the Sunne; and behold the teares of ſuch as were▪ oppreſſed, and they had no Comforter: and on the ſide of their oppreſſours there was power, but they had no Comforter. II. Example of vanities in outward things.
 
-1. Verſe 6.Better is an handfull with quietneſſe, then both the hands full with trauell, and vexation of ſpirit.
+    _ Verſe 2.
 
-1. Verſe 6.
+    _ Verſe 3.Yea, better is be then both they, which hath not yet been, who hath not ſeene the euill worke that is done vnder the Sun.
 
-1. Verſe 7.Then I returned, and ſaw vanity vnder the Sunne.
+    _ Verſe 4.Againe, I conſidered all trauell, and euery right worke, that for this a man is enuyed of his neighbour: this is alſo vanity and vexation of ſpirit.
 
-1. Verſe 8.There is one alone, and there is not a ſecond, yea, he hath neither child nor brother; yet is there no end of all his labour, neither is his eye ſatisfied with riches, neither ſaith hee, for whom doe I labour, and bereaue my ſoule of good? this is alſo vanity, yea, it is a ſore trauell.
+    _ Verſe 5.
 
-1. Verſe 9.Two are better then one; becauſe they haue a good reward for their labour.
+    _ Verſe 6.Better is an handfull with quietneſſe, then both the hands full with trauell, and vexation of ſpirit.
 
-1. Verſe 10.For if they fall, the one will lift vp his fellow: but woe to him that is alone when he falleth; for he hath not auother to helpe him vp.
+    _ Verſe 6.
 
-1. Verſe 11.Againe, if two lie together, then they haue heate; but how can one be warme alone?
+    _ Verſe 7.Then I returned, and ſaw vanity vnder the Sunne.
 
-1. Verſe 12.And if one preuaile againſt him, two ſhall withſtand him; and a three-fold cord is not quickly broken.
+    _ Verſe 8.There is one alone, and there is not a ſecond, yea, he hath neither child nor brother; yet is there no end of all his labour, neither is his eye ſatisfied with riches, neither ſaith hee, for whom doe I labour, and bereaue my ſoule of good? this is alſo vanity, yea, it is a ſore trauell.
 
-1. Verſe 13Better is a poore and a wiſe child, then an old and fooliſh King, who will no more be admoniſhed.
+    _ Verſe 9.Two are better then one; becauſe they haue a good reward for their labour.
 
-1. Verſe 14.For out of priſon hee commeth to raigne, whereas alſo he that is borne in his kingdome becommeth poore.
+    _ Verſe 10.For if they fall, the one will lift vp his fellow: but woe to him that is alone when he falleth; for he hath not auother to helpe him vp.
 
-1. Verſe 15.I conſidered all the liuing, which walke vnder the Sun, with the ſecond child that ſhall ſtand vp in his ſtead.
+    _ Verſe 11.Againe, if two lie together, then they haue heate; but how can one be warme alone?
 
-1. Verſe 16.There is no end of all the people, euen of all that haue b••ne before them: they alſo that come after, ſhall not reioyce in him: ſurely this alſo is vanity, and vexation of ſpirit.
+    _ Verſe 12.And if one preuaile againſt him, two ſhall withſtand him; and a three-fold cord is not quickly broken.
 
-1. Verſe 1.Keepe thy foot when thou goeſt to the houſe of God, and be more ready to heare, then to giue the ſacrifice of fooles: for they conſider not that they doe euill.
+    _ Verſe 13Better is a poore and a wiſe child, then an old and fooliſh King, who will no more be admoniſhed.
 
-1. Verſe 2.Be not raſh with thy mouth, and let not thy heart bee haſty to vtter any thing before God: for God is in heauen, and thou vpon earth: therefore let thy words be few.
+    _ Verſe 14.For out of priſon hee commeth to raigne, whereas alſo he that is borne in his kingdome becommeth poore.
 
-1. Verſe 3.For a dreame commeth through the multitude of buſineſſe, and a fooles voyce is knowne by multitude of words.
+    _ Verſe 15.I conſidered all the liuing, which walke vnder the Sun, with the ſecond child that ſhall ſtand vp in his ſtead.
 
-1. Verſe 4.When thou voweſt a vow vnto God deferre not to pay it: for hee hath no pleaſure in fooles: pay that which thou haſt vowed.
+    _ Verſe 16.There is no end of all the people, euen of all that haue b••ne before them: they alſo that come after, ſhall not reioyce in him: ſurely this alſo is vanity, and vexation of ſpirit.
 
-1. Verſe 5.Better it is that thou ſhouldeſt not vow, then that thou ſhouldeſt vow and not pay.
+1. CHAPTER V.
 
-1. Verſe 6.Suffer not thy mouth to cauſe thy fleſh to ſinne, neither ſay thou before the Angel, that it was an errour: wherefore ſhould God be angry at thy voyce, and deſtroy the worke of thine hands?
+    _ Verſe 1.Keepe thy foot when thou goeſt to the houſe of God, and be more ready to heare, then to giue the ſacrifice of fooles: for they conſider not that they doe euill.
 
-1. Verſe 7.For in the multitude of dreames, and many words, there are alſo diuers vanities: but feare thou God.
+    _ Verſe 2.Be not raſh with thy mouth, and let not thy heart bee haſty to vtter any thing before God: for God is in heauen, and thou vpon earth: therefore let thy words be few.
 
-1. Verſe 8.If thou ſeeſt oppreſſion of the poore, and violent peruerting of iuſtice and iudgement in a Prouince, maruell not at the matter: for he that is higher then the higheſt regardeth; and there be higher then they.
+    _ Verſe 3.For a dreame commeth through the multitude of buſineſſe, and a fooles voyce is knowne by multitude of words.
 
-1. Verſe 9.Moreouer, the profit of the earth is for all: the King himſelfe is ſerued by the field.
+    _ Verſe 4.When thou voweſt a vow vnto God deferre not to pay it: for hee hath no pleaſure in fooles: pay that which thou haſt vowed.
 
-1. Verſe 10.He that loueth ſiluer, ſhall not be ſatisfied with ſiluer; nor he that loueth abundance, with increaſe: this is alſo vanitie.
+    _ Verſe 5.Better it is that thou ſhouldeſt not vow, then that thou ſhouldeſt vow and not pay.
 
-1. Verſe 11.When goods increaſe, they are increaſed that eate them: and what good is there to the owners thereof, ſauing the beholding of them with their eyes?
+    _ Verſe 6.Suffer not thy mouth to cauſe thy fleſh to ſinne, neither ſay thou before the Angel, that it was an errour: wherefore ſhould God be angry at thy voyce, and deſtroy the worke of thine hands?
 
-1. Verſe 12.The ſleepe of a labouring man is ſweet, whether hee eate little or much: but the abundance of the rich will not ſuffer him to ſleepe.
+    _ Verſe 7.For in the multitude of dreames, and many words, there are alſo diuers vanities: but feare thou God.
 
-1. Verſe 13.There is a ſore euill which I haue ſeene vnder the Sun; namely, riches kept for the owners thereof, to their hurt.
+    _ Verſe 8.If thou ſeeſt oppreſſion of the poore, and violent peruerting of iuſtice and iudgement in a Prouince, maruell not at the matter: for he that is higher then the higheſt regardeth; and there be higher then they.
 
-1. Verſe 14.But theſe riches periſh by euill trauell, and he begetteth a ſonne, and there is nothing in his hand.
+    _ Verſe 9.Moreouer, the profit of the earth is for all: the King himſelfe is ſerued by the field.
 
-1. Verſe 15.As he came forth of his mothers wombe, naked ſhall he returne, to goe as he came, and ſhall take nothing of his labour, which he may carry away in his hand.
+    _ Verſe 10.He that loueth ſiluer, ſhall not be ſatisfied with ſiluer; nor he that loueth abundance, with increaſe: this is alſo vanitie.
 
-1. Verſe 16.And this alſo is a ſore euill, that in all points as he came, ſo ſhall he goe: and what profit hath he that hath laboured for the winde?
+    _ Verſe 11.When goods increaſe, they are increaſed that eate them: and what good is there to the owners thereof, ſauing the beholding of them with their eyes?
 
-1. Verſe 17.All his dayes alſo he eateth in darkeneſſe, and he hath much ſorrow, and wrath in his ſickneſſe.
+    _ Verſe 12.The ſleepe of a labouring man is ſweet, whether hee eate little or much: but the abundance of the rich will not ſuffer him to ſleepe.
 
-1. Verſe 18.Behold that which I haue ſeene: it is good and comely, for one to eate and to drinke, and to enioy the good of all his labour that he taketh vnder the Sunne, all the dayes of his life which God giueth him: for it is his portion.
+    _ Verſe 13.There is a ſore euill which I haue ſeene vnder the Sun; namely, riches kept for the owners thereof, to their hurt.
 
-1. Verſe 19.Euery man alſo, to whom God hath giuen riches, and wealth, and hath giuen him power to eate thereof, and to take his portion, and to reioyce in his labour; this is the gift of God.
+    _ Verſe 14.But theſe riches periſh by euill trauell, and he begetteth a ſonne, and there is nothing in his hand.
 
-1. Verſe 20.For he ſhall not much remember the dayes •f his life: becauſe God anſwereth him in the ioy of his heart.
+    _ Verſe 15.As he came forth of his mothers wombe, naked ſhall he returne, to goe as he came, and ſhall take nothing of his labour, which he may carry away in his hand.
 
-1. Verſe 1.There is an euill which I haue ſeene vnder the Sunne, and it is common among men.
+    _ Verſe 16.And this alſo is a ſore euill, that in all points as he came, ſo ſhall he goe: and what profit hath he that hath laboured for the winde?
 
-1. Verſe 2.A man to whom God hath giuen riches, wealth, and honour, ſo that he wanteth nothing for his ſoule of all that he deſireth, yet God giueth him not power to eate thereof, but a ſtranger eateth it: This is vanity, and it is an euill diſeaſe.
+    _ Verſe 17.All his dayes alſo he eateth in darkeneſſe, and he hath much ſorrow, and wrath in his ſickneſſe.
 
-1. Verſe 3.If a man beget an hundred children, and liue many yeares, ſo that the dayes of his yeares be many; and his ſoule be not filled with good, and alſo that he haue no buriall, I ſay, that an vntimely birth is better then he.
+    _ Verſe 18.Behold that which I haue ſeene: it is good and comely, for one to eate and to drinke, and to enioy the good of all his labour that he taketh vnder the Sunne, all the dayes of his life which God giueth him: for it is his portion.
 
-1. Verſe 4.For he commeth in with vanity, and departeth in darkeneſſe, and his name ſhall be couered with darkeneſſe.
+    _ Verſe 19.Euery man alſo, to whom God hath giuen riches, and wealth, and hath giuen him power to eate thereof, and to take his portion, and to reioyce in his labour; this is the gift of God.
 
-1. Verſe 5.Moreouer, he hath not ſeene the Sunne, nor knowne any thing. This hath more reſt then the other.
+    _ Verſe 20.For he ſhall not much remember the dayes •f his life: becauſe God anſwereth him in the ioy of his heart.
 
-1. Verſe 6.Yea, though he liue a thouſa•d yeeres twice told, yet hath he ſeene no good. Doe not all goe to one place?
+1. CHAPTER VI.
 
-1. Verſe 7.All the labour of man is for his mouth, and yet the appetite is not filled.
+    _ Verſe 1.There is an euill which I haue ſeene vnder the Sunne, and it is common among men.
 
-1. Verſe 8.For what hath the wiſe more then the foole? What hath the poore, that knoweth to walke before the liuing?
+    _ Verſe 2.A man to whom God hath giuen riches, wealth, and honour, ſo that he wanteth nothing for his ſoule of all that he deſireth, yet God giueth him not power to eate thereof, but a ſtranger eateth it: This is vanity, and it is an euill diſeaſe.
 
-1. Verſe 9.Better is the ſight of the eyes, then the wandring of the deſire: This is alſo vanity and vexation of ſpirit.
+    _ Verſe 3.If a man beget an hundred children, and liue many yeares, ſo that the dayes of his yeares be many; and his ſoule be not filled with good, and alſo that he haue no buriall, I ſay, that an vntimely birth is better then he.
 
-1. Verſe 10.That which hath beene, is named already, and it is knowne that it is man. neither may he contend with him that is mightier than hee.
+    _ Verſe 4.For he commeth in with vanity, and departeth in darkeneſſe, and his name ſhall be couered with darkeneſſe.
 
-1. Verſe 11.Seeing there be many things that encreaſeth vanitie, what is man the better?
+    _ Verſe 5.Moreouer, he hath not ſeene the Sunne, nor knowne any thing. This hath more reſt then the other.
 
-1. Verſe 12.For who knoweth what is good for man in this life, all the dayes of his vaine life, which he ſpendeth as a ſhadow? for who can tell a man what ſhall be after him vnder the Sunne?
+    _ Verſe 6.Yea, though he liue a thouſa•d yeeres twice told, yet hath he ſeene no good. Doe not all goe to one place?
 
-1. Verſe 1.A good name is better then precious oyntment; and the day of death, then the day of ones birth.
+    _ Verſe 7.All the labour of man is for his mouth, and yet the appetite is not filled.
 
-1. Verſe 2.It is better to goe to the houſe of mourning, then to goe to the houſe of feaſting: for that is the end of all men, and the liuing will lay it to heart.
+    _ Verſe 8.For what hath the wiſe more then the foole? What hath the poore, that knoweth to walke before the liuing?
 
-1. Verſe 3.Sorrow is better then laughter; for by the ſadneſſe of the countenance, the heart is made better.
+    _ Verſe 9.Better is the ſight of the eyes, then the wandring of the deſire: This is alſo vanity and vexation of ſpirit.
 
-1. Verſe 4.The heart of the wiſe is in the houſe of mourning: but the heart of fooles is in the houſe of mirth.
+    _ Verſe 10.That which hath beene, is named already, and it is knowne that it is man. neither may he contend with him that is mightier than hee.
 
-1. Verſe 5.It is better to heare the rebuke of the wiſe, than for a man to heare the ſong of fooles.
+    _ Verſe 11.Seeing there be many things that encreaſeth vanitie, what is man the better?
 
-1. Verſe 6.For as the crackling of thornes vnder a pet, ſo is the laughter of the foole: this alſo is vanitie.
+    _ Verſe 12.For who knoweth what is good for man in this life, all the dayes of his vaine life, which he ſpendeth as a ſhadow? for who can tell a man what ſhall be after him vnder the Sunne?
 
-1. Verſe 7.Surely oppreſſion maketh a wiſe man mad: and a gift deſtroyeth the heart.
+1. CHAPTER VII.
 
-1. Verſe 8.Better is the end of a thing then the beginning thereof: and the patient in ſpirit, is better then the proud in ſpirit.
+    _ Verſe 1.A good name is better then precious oyntment; and the day of death, then the day of ones birth.
 
-1. Verſe 9.Be not haſty in thy ſpirit to be angry: for anger reſteth in the boſome of fooles.
+    _ Verſe 2.It is better to goe to the houſe of mourning, then to goe to the houſe of feaſting: for that is the end of all men, and the liuing will lay it to heart.
 
-1. Verſe 10.Say not thou, what is the cauſe that the former dayes were better then theſe? for thou doſt not inquire wiſely concerning this.
+    _ Verſe 3.Sorrow is better then laughter; for by the ſadneſſe of the countenance, the heart is made better.
 
-1. Verſe 11.Wiſedome is good with an inheritance: and by it there is profit to them that ſee the Sun•e.
+    _ Verſe 4.The heart of the wiſe is in the houſe of mourning: but the heart of fooles is in the houſe of mirth.
 
-1. Verſe 12.For wiſedome is a defence, and money is a defence: but the excellency of knowledge is, that wiſedome giueth life to them that haue it.
+    _ Verſe 5.It is better to heare the rebuke of the wiſe, than for a man to heare the ſong of fooles.
 
-1. Verſe 13.Conſider the worke of God: for who can make that ſtraight, which he hath made crooked?
+    _ Verſe 6.For as the crackling of thornes vnder a pet, ſo is the laughter of the foole: this alſo is vanitie.
 
-1. Verſe 14.In the day of proſperity be ioyfull, but in the day of aduerſitie conſider: God alſo hath ſet the one ouer againſt the other, to the end that man ſhould finde nothing after him.
+    _ Verſe 7.Surely oppreſſion maketh a wiſe man mad: and a gift deſtroyeth the heart.
 
-1. Verſe 15.All things haue I ſeene in the dayes of my vanity: There is a iuſt man that periſheth in his righteouſneſſe, and there is a wicked man that prolongeth his life in his wickedneſſe.
+    _ Verſe 8.Better is the end of a thing then the beginning thereof: and the patient in ſpirit, is better then the proud in ſpirit.
 
-1. Verſe 16.Be not righteous ouermuch, neither make thy ſelfe euer wiſe: why ſhouldeſt thou deſtroy thy ſelfe?
+    _ Verſe 9.Be not haſty in thy ſpirit to be angry: for anger reſteth in the boſome of fooles.
 
-1. Verſe 17.Be not ouermuch wicked, neither be thou fooliſh: why ſhouldeſt thou die before thy time?
+    _ Verſe 10.Say not thou, what is the cauſe that the former dayes were better then theſe? for thou doſt not inquire wiſely concerning this.
 
-1. Verſe 18.It is good that thou ſhouldeſt take hold of this, yea alſo from this withdraw not thine hand: for hee that feareth God ſhall come forth of them all.
+    _ Verſe 11.Wiſedome is good with an inheritance: and by it there is profit to them that ſee the Sun•e.
 
-1. Verſe 19.Wiſedome ſtrengtheneth the wiſe, more then ten mighty men which are in the Citie.
+    _ Verſe 12.For wiſedome is a defence, and money is a defence: but the excellency of knowledge is, that wiſedome giueth life to them that haue it.
 
-1. Verſe 20.For there is not a iuſt man vpon earth, that doth good, and ſinneth not.
+    _ Verſe 13.Conſider the worke of God: for who can make that ſtraight, which he hath made crooked?
 
-1. Verſe 21.Alſo take no heed vnto all words that are ſpoken; leſt thou heare thy ſeruant curſe thee.
+    _ Verſe 14.In the day of proſperity be ioyfull, but in the day of aduerſitie conſider: God alſo hath ſet the one ouer againſt the other, to the end that man ſhould finde nothing after him.
 
-1. Verſe 22.For oftentimes alſo thine owne heart knoweth, that thou thy ſelfe likewiſe haſt curſed others.
+    _ Verſe 15.All things haue I ſeene in the dayes of my vanity: There is a iuſt man that periſheth in his righteouſneſſe, and there is a wicked man that prolongeth his life in his wickedneſſe.
 
-1. Verſe 23.All this haue I proued by wiſedome: I ſaid, I will be wiſe, but it was farre from me.
+    _ Verſe 16.Be not righteous ouermuch, neither make thy ſelfe euer wiſe: why ſhouldeſt thou deſtroy thy ſelfe?
 
-1. Verſe 24.That which is farre off and exceeding deepe, who can find it out.
+    _ Verſe 17.Be not ouermuch wicked, neither be thou fooliſh: why ſhouldeſt thou die before thy time?
 
-1. Verſe 25.I applied mine heart to know and to ſearch, and to ſeeke out wiſedome, and the reaſon of things, and to know the wickedneſſe of folly, euen of fooliſhneſſe and madneſſe.
+    _ Verſe 18.It is good that thou ſhouldeſt take hold of this, yea alſo from this withdraw not thine hand: for hee that feareth God ſhall come forth of them all.
 
-1. Verſe 26.And I finde more bitter then death, the woman whoſe heart is ſnares and nets, and her hands as bands: Who ſo pleaſeth God ſhall eſcape from her, but the ſinner ſhall be taken by her.
+    _ Verſe 19.Wiſedome ſtrengtheneth the wiſe, more then ten mighty men which are in the Citie.
 
-1. Verſe 27.
+    _ Verſe 20.For there is not a iuſt man vpon earth, that doth good, and ſinneth not.
 
-1. Verſe 28.Which yet my ſoule ſeeketh, but I finde not: one man among a thouſand haue I found, but a woman among all thoſe haue I not found.
+    _ Verſe 21.Alſo take no heed vnto all words that are ſpoken; leſt thou heare thy ſeruant curſe thee.
 
-1. Verſe 29.Loe, this onely haue I found, that God hath made man vpright: but they haue ſought out many inuentions.
+    _ Verſe 22.For oftentimes alſo thine owne heart knoweth, that thou thy ſelfe likewiſe haſt curſed others.
 
-1. Verſe 1.Who is as the wiſe man? and who knoweth the interpretation of a thing? a mans wiſedome maketh his face to ſhine, and the boldneſſe of his face ſhall be changed.
+    _ Verſe 23.All this haue I proued by wiſedome: I ſaid, I will be wiſe, but it was farre from me.
 
-1. Verſe 2.I counſell thee to keepe the kings commandement, and that in regard of the oath of God.
+    _ Verſe 24.That which is farre off and exceeding deepe, who can find it out.
 
-1. Verſe 3.Be not haſty to goe out of his ſight, ſtand not in an euill thing, for he doth whatſoeuer pleaſeth him.
+    _ Verſe 25.I applied mine heart to know and to ſearch, and to ſeeke out wiſedome, and the reaſon of things, and to know the wickedneſſe of folly, euen of fooliſhneſſe and madneſſe.
 
-1. Verſe 4.Where the word of a King is, there is power: And who may ſay vnto him, what doeſt thou.
+    _ Verſe 26.And I finde more bitter then death, the woman whoſe heart is ſnares and nets, and her hands as bands: Who ſo pleaſeth God ſhall eſcape from her, but the ſinner ſhall be taken by her.
 
-1. Verſe 5.Who ſo keepeth the Commandement, ſhall ſeele none euill thing: and a wiſe mans heart diſcerneth both time and iudgement.
+    _ Verſe 27.
 
-1. Verſe 6.Becauſe to euery purpoſe there is a time, and iudgement: therefore the miſery of man is great vpon him.
+    _ Verſe 28.Which yet my ſoule ſeeketh, but I finde not: one man among a thouſand haue I found, but a woman among all thoſe haue I not found.
 
-1. Verſe 7.For he knoweth not that which ſhall be: for who can tell him, when it ſhall be?
+    _ Verſe 29.Loe, this onely haue I found, that God hath made man vpright: but they haue ſought out many inuentions.
 
-1. Verſe 8.There is no man that hath power ouer the ſpirit to receiue the ſpirit, neither hath he power in the day of death: and there is no diſcharge in that warre, neither ſhall wickedneſſe deliuer thoſe that are giuen to it.
+1. CHAPTER VIII.
 
-1. Verſe 9.All this haue I ſeene, and applyed my heart to euery worke that is done vnder the Sunne: There is a time wherein one man ruleth ouer another, to his owne hurt.
+    _ Verſe 1.Who is as the wiſe man? and who knoweth the interpretation of a thing? a mans wiſedome maketh his face to ſhine, and the boldneſſe of his face ſhall be changed.
 
-1. Verſe 10.And ſo I ſaw the wicked buryed, who had come and gone from the place of the Holy, and they were forgotten in the citie, where they had ſo done: This is alſo vanity.
+    _ Verſe 2.I counſell thee to keepe the kings commandement, and that in regard of the oath of God.
 
-1. Verſe 11.Becauſe ſentence againſt an euill worke is not executed ſpeedily, therefore the heart of the ſonnes of men is fully ſet in them to doe euill.
+    _ Verſe 3.Be not haſty to goe out of his ſight, ſtand not in an euill thing, for he doth whatſoeuer pleaſeth him.
 
-1. Verſe 12.
+    _ Verſe 4.Where the word of a King is, there is power: And who may ſay vnto him, what doeſt thou.
 
-1. Verſe 13.But it ſhall not be well with the wicked, neither ſhall he prolong his dayes, which are as a ſhadow; becauſe he feareth not before God.
+    _ Verſe 5.Who ſo keepeth the Commandement, ſhall ſeele none euill thing: and a wiſe mans heart diſcerneth both time and iudgement.
 
-1. Verſe 14.There is a vanity which is done vpon the earth, that there be iuſt men, vnto whom it happeneth according to the worke of the wicked; againe, there be wicked men, to whom it happeneth according to the worke of the righteous: I ſaid, that this alſo is vanity.
+    _ Verſe 6.Becauſe to euery purpoſe there is a time, and iudgement: therefore the miſery of man is great vpon him.
 
-1. Verſe 15:Then I commended mirth, becauſe a man hath no better thing vnder the Sunne, then to eate, and to drinke, and to be merrie: for that ſhall abide with him of his labour, the dayes of his life, which God giueth him vnder the Sunne.
+    _ Verſe 7.For he knoweth not that which ſhall be: for who can tell him, when it ſhall be?
 
-1. Verſe 16.When I applyed mine heart to know wiſedome, and to ſee the buſineſſe that is done vpon the earth: (for alſo there is that neither day nor night ſeeth ſleepe with his eyes.)Verſe 17.Then I beheld all the worke of God, that a man cannot find out the worke that is done vnder the Sunne, becauſe though a man labour to ſeeke it out; yea, further, though a wiſe man thinke to know it, yet ſhall he not be able to finde it.
+    _ Verſe 8.There is no man that hath power ouer the ſpirit to receiue the ſpirit, neither hath he power in the day of death: and there is no diſcharge in that warre, neither ſhall wickedneſſe deliuer thoſe that are giuen to it.
 
-1. Verſe 1.For all this I conſidered in my heart, euen to declare all this, that the righteous, and the wiſe, and their workes are in the hand of God: no man knoweth either loue, or hatred, by all that is about him.
+    _ Verſe 9.All this haue I ſeene, and applyed my heart to euery worke that is done vnder the Sunne: There is a time wherein one man ruleth ouer another, to his owne hurt.
 
-1. Verſe 2.All things come alike to all: there is one euent to the righteous, and to the wicked, to the good, and to the cleane, and to the vncleane, to him that ſacrificeth, and to him that ſacrificeth not: as is the good, ſo is the ſinner; and he that ſweareth, as he that feareth an oath.
+    _ Verſe 10.And ſo I ſaw the wicked buryed, who had come and gone from the place of the Holy, and they were forgotten in the citie, where they had ſo done: This is alſo vanity.
 
-1. Verſe 3.This is an euill among all things that are done vnder the Sunne, that there is one event vnto all: yea alſo the heart of the ſonnes of men is full of euill, and madneſſe is in their heart while they liue, and after that they go to the dead.
+    _ Verſe 11.Becauſe ſentence againſt an euill worke is not executed ſpeedily, therefore the heart of the ſonnes of men is fully ſet in them to doe euill.
 
-1. Verſ. 4.For to him that is ioyned to all the liuing, there is hope: for a liuing Dogge is better then a dead Lion.
+    _ Verſe 12.
 
-1. Verſe 5.For the liuing know that they ſhall die: but the dead know not any thing, neither haue they any more a reward; for the memorie of them is forgotten.
+    _ Verſe 13.But it ſhall not be well with the wicked, neither ſhall he prolong his dayes, which are as a ſhadow; becauſe he feareth not before God.
 
-1. Verſe 6.Alſo their loue▪ and their hatred, and their enuie is n•w periſhed: neither haue they any more a portion for euer in any thing that is vnder the Sunne.
+    _ Verſe 14.There is a vanity which is done vpon the earth, that there be iuſt men, vnto whom it happeneth according to the worke of the wicked; againe, there be wicked men, to whom it happeneth according to the worke of the righteous: I ſaid, that this alſo is vanity.
 
-1. Verſe 7.Go thy way, eate thy bread with ioy, and drinke thy wine with a merrie heart: for God now accepteth thy workes.
+    _ Verſe 15:Then I commended mirth, becauſe a man hath no better thing vnder the Sunne, then to eate, and to drinke, and to be merrie: for that ſhall abide with him of his labour, the dayes of his life, which God giueth him vnder the Sunne.
 
-1. Verſe 8.Let thy garments be alwayes white, and let thy head lacke no oyntment.
+    _ Verſe 16.When I applyed mine heart to know wiſedome, and to ſee the buſineſſe that is done vpon the earth: (for alſo there is that neither day nor night ſeeth ſleepe with his eyes.)Verſe 17.Then I beheld all the worke of God, that a man cannot find out the worke that is done vnder the Sunne, becauſe though a man labour to ſeeke it out; yea, further, though a wiſe man thinke to know it, yet ſhall he not be able to finde it.
 
-1. Verſe 9.Liue ioyfully with the wife, whom thou loueſt all the dayes of the life of thy vanitie, which he hath giuen thee vuder the Sunne, all the dayes of thy vanitie: for that is thy portion in this life, and in thy labour which thou takeſt vnder the Sunne.
+1. CHAPTER IX.
 
-1. Verſe 10.Whatſoeuer thine hand findeth to do, do it with thy might: for there is no worke, nor deuice, nor knowledge, nor wiſedome in the graue, whither thou goeſt.
+    _ Verſe 1.For all this I conſidered in my heart, euen to declare all this, that the righteous, and the wiſe, and their workes are in the hand of God: no man knoweth either loue, or hatred, by all that is about him.
 
-1. Verſe 11.I returned and ſawe vnder the Sunne, that the race is not to the ſwift, nor the battell to the ſtrong, neither yet bread to the wiſe, nor yet riches to men of vnderstanding▪
+    _ Verſe 2.All things come alike to all: there is one euent to the righteous, and to the wicked, to the good, and to the cleane, and to the vncleane, to him that ſacrificeth, and to him that ſacrificeth not: as is the good, ſo is the ſinner; and he that ſweareth, as he that feareth an oath.
+
+    _ Verſe 3.This is an euill among all things that are done vnder the Sunne, that there is one event vnto all: yea alſo the heart of the ſonnes of men is full of euill, and madneſſe is in their heart while they liue, and after that they go to the dead.
+
+    _ Verſ. 4.For to him that is ioyned to all the liuing, there is hope: for a liuing Dogge is better then a dead Lion.
+
+    _ Verſe 5.For the liuing know that they ſhall die: but the dead know not any thing, neither haue they any more a reward; for the memorie of them is forgotten.
+
+    _ Verſe 6.Alſo their loue▪ and their hatred, and their enuie is n•w periſhed: neither haue they any more a portion for euer in any thing that is vnder the Sunne.
+
+    _ Verſe 7.Go thy way, eate thy bread with ioy, and drinke thy wine with a merrie heart: for God now accepteth thy workes.
+
+    _ Verſe 8.Let thy garments be alwayes white, and let thy head lacke no oyntment.
+
+    _ Verſe 9.Liue ioyfully with the wife, whom thou loueſt all the dayes of the life of thy vanitie, which he hath giuen thee vuder the Sunne, all the dayes of thy vanitie: for that is thy portion in this life, and in thy labour which thou takeſt vnder the Sunne.
+
+    _ Verſe 10.Whatſoeuer thine hand findeth to do, do it with thy might: for there is no worke, nor deuice, nor knowledge, nor wiſedome in the graue, whither thou goeſt.
+
+    _ Verſe 11.I returned and ſawe vnder the Sunne, that the race is not to the ſwift, nor the battell to the ſtrong, neither yet bread to the wiſe, nor yet riches to men of vnderstanding▪
 nor yet fauour to men of skill, but time and chance happeneth to them all.
 
-1. Verſe 12.For man alſo knoweth not his time, as the fiſhes that are taken in an euill net, and as the birds that are caught in the ſnares, ſo are the ſons of men ſnared in an euill time, when it falleth ſuddenly vpon them.
+    _ Verſe 12.For man alſo knoweth not his time, as the fiſhes that are taken in an euill net, and as the birds that are caught in the ſnares, ſo are the ſons of men ſnared in an euill time, when it falleth ſuddenly vpon them.
 
-1. Verſe 13.This wiſedome haue I ſeene alſo vnder the Sunne, and it ſeemed great vnto me.
+    _ Verſe 13.This wiſedome haue I ſeene alſo vnder the Sunne, and it ſeemed great vnto me.
 
-1. Verſe 14.
+    _ Verſe 14.
 
-1. Verſe 15.Now there was found in it a poore wiſe man, and he by his wiſedome deliuered the Citie, yet no man remembred that ſame poore man.
+    _ Verſe 15.Now there was found in it a poore wiſe man, and he by his wiſedome deliuered the Citie, yet no man remembred that ſame poore man.
 
-1. Verſe 16.Then ſaid I, wiſedome is better then ſtrength▪ neuertheleſſe the poore mans wiſedome is deſpiſed, and his words are not heard.
+    _ Verſe 16.Then ſaid I, wiſedome is better then ſtrength▪ neuertheleſſe the poore mans wiſedome is deſpiſed, and his words are not heard.
 
-1. Verſe 17.The words of wiſe men are heard in quiet, more then the crie of him that ruleth among fooles.
+    _ Verſe 17.The words of wiſe men are heard in quiet, more then the crie of him that ruleth among fooles.
 
-1. Verſe 18.Wiſedome is better then weapons of warre: but one ſinner deſtroyeth much good.
+    _ Verſe 18.Wiſedome is better then weapons of warre: but one ſinner deſtroyeth much good.
 
-1. Verſe 1.Dead ſlies cauſe the oyntment of the Apothecarie to ſend foorth a ſtinking ſauour: ſo doth alittle follie him, that is in reputation for wiſedome and honour.
+1. CHAPTER X.
 
-1. Verſe 2.A wiſe mans heart is at his right hand: but a fooles heart at his left.
+    _ Verſe 1.Dead ſlies cauſe the oyntment of the Apothecarie to ſend foorth a ſtinking ſauour: ſo doth alittle follie him, that is in reputation for wiſedome and honour.
 
-1. Verſe 3.Yea alſo when he that is a foole walketh by the way▪ his wiſedome faileth him, and he ſaith to euery one that he is a foole.
+    _ Verſe 2.A wiſe mans heart is at his right hand: but a fooles heart at his left.
 
-1. Verſe 4.If the ſpirit of the ruler riſe vp againſt thee, leaue not thy place: for yeelding pacifieth great offences.
+    _ Verſe 3.Yea alſo when he that is a foole walketh by the way▪ his wiſedome faileth him, and he ſaith to euery one that he is a foole.
 
-1. Verſ. 5.There is an euill which I haue ſeene vnder the Sunne as an errour, which proceedeth from the Ruler.
+    _ Verſe 4.If the ſpirit of the ruler riſe vp againſt thee, leaue not thy place: for yeelding pacifieth great offences.
 
-1. Verſe 6.Follie is ſet in great dignitie, and the rich in lowe place.
+    _ Verſ. 5.There is an euill which I haue ſeene vnder the Sunne as an errour, which proceedeth from the Ruler.
 
-1. Verſe 7.I haue ſeene ſeruants vpon horſes, and Princes walking as ſeruvnts vpon the earth.
+    _ Verſe 6.Follie is ſet in great dignitie, and the rich in lowe place.
 
-1. Verſe 8.He that diggeth a pit ſhall fall into it, and who ſo breaketh an hedge, a Serpent ſhall bite him.
+    _ Verſe 7.I haue ſeene ſeruants vpon horſes, and Princes walking as ſeruvnts vpon the earth.
 
-1. Verſe 9.Who ſo remoueth▪ſtones, ſhall be hurt therewith: and he that cleaueth wood, ſhall be indangered thereby.
+    _ Verſe 8.He that diggeth a pit ſhall fall into it, and who ſo breaketh an hedge, a Serpent ſhall bite him.
 
-1. Verſe 10.If the iron be blunt, and he do not whet the edge, then muſt he put to more ſtrength: but wiſedome 〈◊〉 profitable to direct.
+    _ Verſe 9.Who ſo remoueth▪ſtones, ſhall be hurt therewith: and he that cleaueth wood, ſhall be indangered thereby.
 
-1. Verſe 11.Surely the ſerpent will bite without enchantment, and a babbler is no better.
+    _ Verſe 10.If the iron be blunt, and he do not whet the edge, then muſt he put to more ſtrength: but wiſedome 〈◊〉 profitable to direct.
 
-1. Verſe 12.The words of a wiſe mans mouth are gracious: but the lips of a foole will ſwallow vp himſelfe.
+    _ Verſe 11.Surely the ſerpent will bite without enchantment, and a babbler is no better.
 
-1. Verſe 13.The beginning of the words of his mouth is fooleſhneſſe: and the end of his talke is miſchieuous madneſſe.
+    _ Verſe 12.The words of a wiſe mans mouth are gracious: but the lips of a foole will ſwallow vp himſelfe.
 
-1. Verſe 14.A foole alſo is full of words: a man cannot tell what ſhall be; and what ſhall be after him, who can tell?
+    _ Verſe 13.The beginning of the words of his mouth is fooleſhneſſe: and the end of his talke is miſchieuous madneſſe.
 
-1. Verſe 15.The labour of the fooliſh wearieth euery one of them▪ becauſe he knoweth not how to goe to the Citie.
+    _ Verſe 14.A foole alſo is full of words: a man cannot tell what ſhall be; and what ſhall be after him, who can tell?
 
-1. Verſe 16.Woe to thee, O Land, when thy King is a child and thy Princes eate in the morning.
+    _ Verſe 15.The labour of the fooliſh wearieth euery one of them▪ becauſe he knoweth not how to goe to the Citie.
 
-1. Verſe 17.Bleſſed art thou, O Land, when thy King is the ſon of Nobles, and thy Princes eate in due ſeaſon, for ſtrength, and not for drunkenneſſe.
+    _ Verſe 16.Woe to thee, O Land, when thy King is a child and thy Princes eate in the morning.
 
-1. Verſe 18.By much ſlouthfulneſſe the building decayeth; and through idleneſſe of the hands the houſe droppeth through.
+    _ Verſe 17.Bleſſed art thou, O Land, when thy King is the ſon of Nobles, and thy Princes eate in due ſeaſon, for ſtrength, and not for drunkenneſſe.
 
-1. Verſe 19.A feaſt is made for laughter, and wine maketh merrie, but money anſwereth all things.
+    _ Verſe 18.By much ſlouthfulneſſe the building decayeth; and through idleneſſe of the hands the houſe droppeth through.
 
-1. Verſe 20.Curſe not the King, no not in thy thought: and curſe not the rich in thy bed-chamber: for a bird of the ayre ſhall carry the voice, and that which hath wings ſhal tell the matter.
+    _ Verſe 19.A feaſt is made for laughter, and wine maketh merrie, but money anſwereth all things.
 
-1. Verſe 1.Caſt thy bread vpon the waters: for thou ſhalt finde it As the firſt degree of felicity conſiſted in the comfortable vſe of worldly things, and wiſe auoidance of euils: ſo the ſecond degree thereof conſiſteth in doing good, communicating and •ōpalsionating of others. The former, in one terme may be called ſobriety, this charitie.after many dayes.
+    _ Verſe 20.Curſe not the King, no not in thy thought: and curſe not the rich in thy bed-chamber: for a bird of the ayre ſhall carry the voice, and that which hath wings ſhal tell the matter.
 
-1. Verſe 2.Giue a portion to ſeuen, and alſo to eight: for thou knoweſt not what euill ſhall be vpon the earth.
+1. CHAPTER XI.
 
-1. Verſe 3.If the clouds be full of raine, they emptie themſelues vpon the earth: and if the tree fall toward the South, or toward the North, in the place where the tree falleth, there it ſhall be.
+    _ Verſe 1.Caſt thy bread vpon the waters: for thou ſhalt finde it As the firſt degree of felicity conſiſted in the comfortable vſe of worldly things, and wiſe auoidance of euils: ſo the ſecond degree thereof conſiſteth in doing good, communicating and •ōpalsionating of others. The former, in one terme may be called ſobriety, this charitie.after many dayes.
 
-1. Verſe 4.He that obſerueth the winde, ſhall not ſow: and he that regardeth the clouds, ſhall not reape.
+    _ Verſe 2.Giue a portion to ſeuen, and alſo to eight: for thou knoweſt not what euill ſhall be vpon the earth.
 
-1. Verſe 5.As thou knoweſt not what is the way of the ſpirit, nor how the bones do grow in the wombe of her that is with child: euen ſo thou knoweſt not the workes of God who maketh all.
+    _ Verſe 3.If the clouds be full of raine, they emptie themſelues vpon the earth: and if the tree fall toward the South, or toward the North, in the place where the tree falleth, there it ſhall be.
 
-1. Verſe 6.In the morning ſowe thy ſeede, and in the euening with-hold not thine hand: for thou knowest not whether ſhall proſper, eyther this or that, or whether they both both ſhall be alike good.
+    _ Verſe 4.He that obſerueth the winde, ſhall not ſow: and he that regardeth the clouds, ſhall not reape.
 
-1. Verſe 7.Truely the light is ſweete, and a pleaſant thing it is for the eyes to behold the Sunne.
+    _ Verſe 5.As thou knoweſt not what is the way of the ſpirit, nor how the bones do grow in the wombe of her that is with child: euen ſo thou knoweſt not the workes of God who maketh all.
 
-1. Verſe 8.But if a man liue many yeares, and reioyce in them all: yet let him remember the dayes of darkneſſe, for they ſhall be many. All that commeth is vanitie.
+    _ Verſe 6.In the morning ſowe thy ſeede, and in the euening with-hold not thine hand: for thou knowest not whether ſhall proſper, eyther this or that, or whether they both both ſhall be alike good.
 
-1. Verſe 9.Reioyce O yong man in thy youth, and let thy heart cheere thee in the dayes of thy youth▪ and walke in the wayes of thine heart, and in the ſight of thine eyes: but know thou that for all theſe things God will bring thee to iudgement.
+    _ Verſe 7.Truely the light is ſweete, and a pleaſant thing it is for the eyes to behold the Sunne.
 
-1. Verſe 10.Therefore remoue ſorrow from thine heart, and put away euill from thy fleſh: for childhood and youth are vanitie.
+    _ Verſe 8.But if a man liue many yeares, and reioyce in them all: yet let him remember the dayes of darkneſſe, for they ſhall be many. All that commeth is vanitie.
 
-1. Verſe 1.Remember now thy Creator in the dayes of thy youth, while the euill dayes come not, nor the yeares draw nigh, when thou ſhalt ſay, I haue no pleaſure in them.
+    _ Verſe 9.Reioyce O yong man in thy youth, and let thy heart cheere thee in the dayes of thy youth▪ and walke in the wayes of thine heart, and in the ſight of thine eyes: but know thou that for all theſe things God will bring thee to iudgement.
 
-1. Verſe 2.While the Sunne, or the Light, or the Moone, or the Starres be not darkened, nor the Cloudes returne after the raine.
+    _ Verſe 10.Therefore remoue ſorrow from thine heart, and put away euill from thy fleſh: for childhood and youth are vanitie.
 
-1. Verſe 3.In the day when the keepers of the houſe ſhall tremble, and the ſtrong men ſhall bow themſelues, and the grinders ceaſe▪ becauſe they are few, and thoſe that looke out of the windowes be darkened.
+1. CHAPTER XII.
 
-1. Verſe 4.And the doores ſhall be ſhut in the ſtreetes, when the ſound of the grinding is low, and hee ſhall riſe vp at the voice of the bird, and all the daughters of muſicke ſhall be brought low.
+    _ Verſe 1.Remember now thy Creator in the dayes of thy youth, while the euill dayes come not, nor the yeares draw nigh, when thou ſhalt ſay, I haue no pleaſure in them.
 
-1. Verſe 5.Alſo when they ſhall be afraid of that which is high, and feares ſhall be in the way, and the Almond tree ſhall flouriſh, and the graſhopper ſhall be a burden, and deſire ſhall faile: becauſe man goeth to his long home, and the mourners go about the ſtreetes.
+    _ Verſe 2.While the Sunne, or the Light, or the Moone, or the Starres be not darkened, nor the Cloudes returne after the raine.
 
-1. Verſe 6.Or euer the ſiluer cord be looſed, or the golden bowle be broken, or the pitcher be broken at the fountaine, or the wheele broken at the Cisterne.
+    _ Verſe 3.In the day when the keepers of the houſe ſhall tremble, and the ſtrong men ſhall bow themſelues, and the grinders ceaſe▪ becauſe they are few, and thoſe that looke out of the windowes be darkened.
 
-1. Verſe 7.Then ſhall the duſt returne to the earth, as it was: and the ſpirit ſhall returne to God who gaue it.
+    _ Verſe 4.And the doores ſhall be ſhut in the ſtreetes, when the ſound of the grinding is low, and hee ſhall riſe vp at the voice of the bird, and all the daughters of muſicke ſhall be brought low.
 
-1. Verſe 8.Vanitie of vanities, ſaith the Preacher, all is vanitie.
+    _ Verſe 5.Alſo when they ſhall be afraid of that which is high, and feares ſhall be in the way, and the Almond tree ſhall flouriſh, and the graſhopper ſhall be a burden, and deſire ſhall faile: becauſe man goeth to his long home, and the mourners go about the ſtreetes.
 
-1. Verſe 9.And moreouer, becauſe the Preacher was wiſe, he ſtill taught the people knowledge: yea hee gaue good heede, and ſought out, and ſet in order many prouerbes.
+    _ Verſe 6.Or euer the ſiluer cord be looſed, or the golden bowle be broken, or the pitcher be broken at the fountaine, or the wheele broken at the Cisterne.
 
-1. Verſe 10.The Preacher ſought to finde out acceptable words▪ and that which was written was vpright, euen the words of truth.
+    _ Verſe 7.Then ſhall the duſt returne to the earth, as it was: and the ſpirit ſhall returne to God who gaue it.
 
-1. Verſe 11.The words of the wiſe are as goads, and as nailes faſtened by the maiſters of Aſſemblies, which are giuen from one Shepheard.
+    _ Verſe 8.Vanitie of vanities, ſaith the Preacher, all is vanitie.
 
-1. Verſe 12.And further, by theſe, my ſonne, be admoniſhed: of making many bookes there is no end, and much ſtudie is a wearineſſe to the fleſh.
+    _ Verſe 9.And moreouer, becauſe the Preacher was wiſe, he ſtill taught the people knowledge: yea hee gaue good heede, and ſought out, and ſet in order many prouerbes.
 
-1. Verſe 13.Let vs heare the concluſion of the whole matter: Feare God, and keepe his commandements, for this is the whole dutie of man.
+    _ Verſe 10.The Preacher ſought to finde out acceptable words▪ and that which was written was vpright, euen the words of truth.
 
-1. Verſe 14.For God ſhall bring euery worke into iudgement, with euery ſecret thing, whether it be good, or whether it be euill.
+    _ Verſe 11.The words of the wiſe are as goads, and as nailes faſtened by the maiſters of Aſſemblies, which are giuen from one Shepheard.
+
+    _ Verſe 12.And further, by theſe, my ſonne, be admoniſhed: of making many bookes there is no end, and much ſtudie is a wearineſſe to the fleſh.
+
+    _ Verſe 13.Let vs heare the concluſion of the whole matter: Feare God, and keepe his commandements, for this is the whole dutie of man.
+
+    _ Verſe 14.For God ſhall bring euery worke into iudgement, with euery ſecret thing, whether it be good, or whether it be euill.
 
 #####Back#####
-A familiar exposition or commentarie on Ecclesiastes VVherein the worlds vanity, and the true felici
+
+1. A TABLE.
+Faults.Corrected.Page. Line.Compariſe.Compariſon.page 21. line 2.Seamen.Seaman.pag 25. lin. 3before.
 **Types of content**
 
   * There are 9 **verse** lines!
